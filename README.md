@@ -1,1 +1,13 @@
 # TechFix_Project
+![image](https://github.com/user-attachments/assets/a27ba139-1455-494a-94d6-5078918215fd)
+![image](https://github.com/user-attachments/assets/c25b045a-d831-4c60-8fb8-953b34ae97a7)
+![image](https://github.com/user-attachments/assets/c776c894-c8ed-4489-ab83-592748236a2d)
+![image](https://github.com/user-attachments/assets/8e6b109d-06a6-44fd-b169-be809c9d78ca)
+![image](https://github.com/user-attachments/assets/cefef25a-0d27-4ecb-8b01-9dc055560317)
+![image](https://github.com/user-attachments/assets/1efe4048-47e9-4021-8c13-0ee496b6f501)
+![image](https://github.com/user-attachments/assets/a1ddd636-a5e1-43e6-ac78-84c2614dd40e)
+![image](https://github.com/user-attachments/assets/13f5d244-868d-42a9-a89c-21f005ad385d)
+![image](https://github.com/user-attachments/assets/cf17d9ca-acb4-48e6-840f-6e7a6b9a5591)
+![image](https://github.com/user-attachments/assets/e6600f01-b83f-4e23-80a6-52198fe0deaa)
+![image](https://github.com/user-attachments/assets/8622e06e-af1c-40fc-97a6-389465dd82c4)
+![image](https://github.com/user-attachments/assets/7f1bca3e-5ad8-4390-84fd-a2998987c75f)
